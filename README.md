@@ -7,3 +7,5 @@ every other things
 
 "悟已往之不谏，知来者之可追" —— 《归去来兮辞》
 
+It wasn’t only wickedness and scheming that made people unhappy, it was confusion and misunderstanding; above all, it was the failure to grasp the simple truth that other people are as real as you. -- Atonement
+
