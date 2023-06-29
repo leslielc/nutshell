@@ -9,3 +9,4 @@ every other things
 
 It wasn’t only wickedness and scheming that made people unhappy, it was confusion and misunderstanding; above all, it was the failure to grasp the simple truth that other people are as real as you. -- Atonement
 
+此一行，如鸟上青天，鱼入大海，再也不受羁绊了 -- 《三国演义》
